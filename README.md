@@ -3,7 +3,7 @@ still wip im lazy
 
 
 <p align="center">
-  <img src="https://i.postimg.cc/FH4cbtQC/6b5f9e4d76cc73b17cac7371d835d887.gif" width="50" />
+  <img src="" width="50" />
 
 
 
