@@ -3,7 +3,7 @@ still wip im lazy
 
 
 <p align="center">
-  <img src="https://i.postimg.cc/pXZshC2F/ezgif-8e71f1cb4f4fc683.gif" width="50" />
+  <img src="" width="50" />
 
 
 
@@ -16,7 +16,7 @@ still wip im lazy
 
 
 <div align="center">
-   <img src=""
+   <img src="https://i.postimg.cc/pXZshC2F/ezgif-8e71f1cb4f4fc683.gif"
              width="500"> 
 
 
