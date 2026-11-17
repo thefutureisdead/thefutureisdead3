@@ -60,9 +60,9 @@ still wip im lazy
 
 name is banny! im 17y/o 
 
-this is an alt account for my STH skins
+this is an alt account (main: bannysuperman) not a spam following i just like to follow sonic fans- yall so cool ok? 
 
-i don't sit in the STH area always but 
+i don't sit in the STH area ALWAYS but 
 if you saw me PLZZZZAHH sit with me!! 
 c+hfreely! im mostly always sit alone 
 there 
